@@ -1,3 +1,0 @@
-# hello-world
-
-I was randomly offered a side gig position at the University ballroom playing the piano for a group of business execs.  I was cut a check for 15 mins of playing and negotiated @ $40.  It was on a Steinway & Sons concert grand piano with disfunctional keys near middle c.  Leaving the ballroon I had at the time a Christian Hosoi Rising Sun White/Red bookbag, my skateboard, and Piet Mondrian shoes.  The collaborative efforts of the outfit are humorous in front of the suits.  Negotiations occured because the weather outside was a very clear sky, sunny, and perfect for my initial plans of tennis. They came in @ $35.
